@@ -1,6 +1,7 @@
 ---
 layout: default
 ---
+Welcome!
 
 # Our purpose
 This website is here to build a community of like-minded people who want to have a positive impact in an effective way (so using rationality and science).
