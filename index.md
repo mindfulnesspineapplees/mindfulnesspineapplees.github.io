@@ -1,6 +1,7 @@
 ---
 layout: default
 ---
+
 # Mindfulness Course
 Here we have a mission to give the MBSR course to students! MBSR (stands for mindfulness based stress reduction) is an 8 week program that is currently the most researched meditation technique out there.
 
