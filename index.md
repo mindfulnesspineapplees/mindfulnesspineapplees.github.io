@@ -1,5 +1,4 @@
 ---
-layout: default
 name: my-website
 output_dir: docs
 navbar:
