@@ -1,3 +1,5 @@
+![](Dalle1.png)
+
 ![[DALL·E 2022-09-07 10.20.02 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird.png]]
 
 ![[DALL·E 2022-09-07 10.20.33 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird.png]]
