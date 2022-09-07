@@ -1,6 +1,4 @@
 ![DALL·E 2022-09-07 10.20.02 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird](Dalle1.png)
-![DALL·E 2022-09-07 10.20.33 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird](Dalle2.png)
-![DALL·E 2022-09-07 10.21.00 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird](Dalle3.png)
 
 *The art of Full Catastrophe Living*
 
