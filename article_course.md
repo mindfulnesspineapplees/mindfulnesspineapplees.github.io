@@ -8,7 +8,8 @@ Starting the 27th of September, Student Meditation organises an 8-week mindfulne
 
 We will teach the program of the famous Mindfulness Based Stress Reduction (MBSR) course developed by Jon Kabat-Zinn. This is a course that is high in intensity. It is eight weeks long and consists of weekly 2.5h group sessions in which we do guided meditations, discussions and exercises together. Between the sessions, participants are asked to do daily homework exercises that take around 45 minutes.
 
-**Why?**  
+**Why**?
+
 Life can be stressful and unpredictable. Difficulties and challenges are inevitable parts of it. Learning to work with this knowledge, and developing the skill to live life fully, in all its richness, is what Jon Kabat-Zinn calls *Full Catastrophe Living*. This is what the practice of mindfulness is all about.
 
 In the MBSR course we practice to:
