@@ -1,14 +1,13 @@
-# *The art of Full Catastrophe Living*
+# The Art of Full Catastrophe Living
 
 ![DALL·E 2022-09-07 10.20.02 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird](Dalle1.png)
 
 Starting the 27th of September, Student Meditation organises an 8-week mindfulness course for students taking place at Science Park.
 
 **What?**
-We will teach the program of the famous Mindfulness Based Stress Reduction (MBSR) course developed by Jon Kabat-Zinn. This is a course that is high in intensity. It is eight weeks long and consists of weekly 2.5h group sessions in which we do guided meditations, discussions and exercises together. Between the sessions, participants are asked to do daily homework exercises that take around 45 minutes.
+  We will teach the program of the famous Mindfulness Based Stress Reduction (MBSR) course developed by Jon Kabat-Zinn. This is a course that is high in intensity. It is eight weeks long and consists of weekly 2.5h group sessions in which we do guided meditations, discussions and exercises together. Between the sessions, participants are asked to do daily homework exercises that take around 45 minutes.
 
 **Why?**
-
 Life can be stressful and unpredictable. Difficulties and challenges are inevitable parts of it. Learning to work with this knowledge, and developing the skill to live life fully, in all its richness, is what Jon Kabat-Zinn calls *Full Catastrophe Living*. This is what the practice of mindfulness is all about.
 
 In the MBSR course we practice to:
