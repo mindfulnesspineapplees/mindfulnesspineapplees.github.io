@@ -1,12 +1,8 @@
-![](Dalle1.png)
+![DALL·E 2022-09-07 10.20.02 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird](Dalle1.png)
+![DALL·E 2022-09-07 10.20.33 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird](Dalle2.png)
+![DALL·E 2022-09-07 10.21.00 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird](Dalle3.png)
 
-![[DALL·E 2022-09-07 10.20.02 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird.png]]
-
-![[DALL·E 2022-09-07 10.20.33 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird.png]]
-
-![[DALL·E 2022-09-07 10.21.00 - an impressionist painting of a smiling woman meditating cross-legged on a stone in a forest with a cute bird.png]]
-
-The art of Full Catastrophe Living
+*The art of Full Catastrophe Living*
 
 Starting the 27th of September, Student Meditation organises an 8-week mindfulness course for students taking place at Science Park.
 
