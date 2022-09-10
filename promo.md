@@ -16,7 +16,7 @@ In the MBSR course we practice to:
 - become more aware of our patterns in thinking, behaviour and mood,
 - and be more present and aware in day-to-day life.
 
-Since the development of the MBSR course, research has shown that the MBSR course has positive impact on both mental and physical health in various ways. 
+Since the development of the MBSR course, a lot of research has been published that show it has many positive benefits on a persons well-being: such as a decreased risk of depression relapse, a decrease in anxiety, improved focus and ofcourse stress reduction.
 
 ## For whom?
 We are teaching this course for students. It does not matter whether you study at the UVA or somewhere else.
@@ -24,7 +24,7 @@ We are teaching this course for students. It does not matter whether you study a
 This is an intensive course with weekly 2.5h sessions and daily homework practice of around 45 minutes. Please only sign up for this course if you're able to make this kind of time commitment.
 
 ## Where & When?
-The course will be taught at Science Park on Tuesday evenings from 17:30-20:00 for 8 weeks starting the 27th of September.
+The course will be taught at Science Park D1.160 on Tuesday evenings from 17:30-20:00 for 8 weeks starting the 27th of September.
 
 ## Costs
 The costs of this course will be 60 euros. We don't want money to be a reason that you cannot follow this course. If you are not able to pay, please contact us to figure out a solution.
